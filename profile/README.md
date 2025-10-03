@@ -1,8 +1,12 @@
 ## About Me
 Hi there! I'm SmirMikeMade564
+
 💬 I usually create bots and servers, and chatting in servers. 
+
 [?] I am a YouTuber that i dont create videos that much. 
+
 🤖 I created CoolModerationBot on discord. 
+
 🔗 You can check my other links in my [guns.lol](https://guns.bio/smirmikemade564 profile. 
 <!--
 
