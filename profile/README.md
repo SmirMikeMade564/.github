@@ -7,7 +7,7 @@ Hi there! I'm SmirMikeMade564
 
 🤖 I created CoolModerationBot on discord. 
 
-🔗 You can check my other links in my [guns.lol](https://guns.bio/smirmikemade564 profile. 
+🔗 You can check my other links in my [guns.lol](https://guns.bio/smirmikemade564) profile. 
 <!--
 
 **Here are some ideas to get you started:**
