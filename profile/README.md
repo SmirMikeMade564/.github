@@ -1,8 +1,8 @@
 ## Hi there 👋
 I'm SmirMikeMade564
-I usually create bots and servers, and chatting in servers. 
-I created CoolModerationBot on discord. 
-
+💬 I usually create bots and servers, and chatting in servers. 
+🤖 I created CoolModerationBot on discord. 
+🔗 You can check my other links in my [guns.lol](https://guns.bio/smirmikemade564 profile. 
 <!--
 
 **Here are some ideas to get you started:**
